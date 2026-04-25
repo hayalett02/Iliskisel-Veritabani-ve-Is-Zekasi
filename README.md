@@ -1,0 +1,1 @@
+# Iliskisel-Veritabani-ve-Is-Zekasi
